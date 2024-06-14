@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 💝t
+### Boas vindas ao meu perfil 💝
 
 Meu nome é maria eduarda 
 
